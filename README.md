@@ -1,1 +1,3 @@
 # xash-aim-cfg
+by Sercan Dev Kodlar Bana Ait Ücretsiz Veriyorum...
+İyi Oyunlar Xash 3D uyumlu
